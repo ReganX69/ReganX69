@@ -1,0 +1,3 @@
+- Sup? I'm @ReganX69
+- Currently studying at VIT 
+- Only wanna learn coding coz watching Mr.Robot and its cool
